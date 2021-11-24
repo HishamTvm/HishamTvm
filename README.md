@@ -15,3 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ### I AM MONSTER LALLU KCH THIS PAGE IS ONLY FOR EDUCATION,WE ARE NOT SUPPORTING ANY TYPE OF MISS USE.......
+
+<div align="center">
+*ɪͥᴛͭsᷤ ᴍͫᴇͤ 𝐌𝐎𝐍𝐒𝐓𝐄𝐑 𝐋𝐀𝐋𝐋𝐔
+
+<div align="center">
+  <img src=https://www.linkpicture.com/q/Monster_fake-20210801_144150.jpg>
