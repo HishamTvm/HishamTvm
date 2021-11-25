@@ -11,7 +11,7 @@
 <img align="right" src="https://github.com/Kavindu-Dilhara/Kavindu-Dilhara/blob/main/Developerkavi.gif"/>
 </div>
 	
-- 👨🏽‍💻 HELLO I’m [Kavindu dilhara](https://www.facebook.com/kavindu.dilhara.311 )
+- 👨🏽‍💻 HELLO I’m [MONSTER LALLU](https://www.facebook.com/kavindu.dilhara.311 )
 - 🤔 I’m looking for New programming methord
 - 🌱 I’m currently learning **Java, Node.js, HTML, Python**
 -😊 Ask me about anything, I am happy to help
